@@ -10,8 +10,13 @@ Keeping track of games we need to finish
 * Spyro: Re-Ignited Trilogy
 * The Witcher 3: The Wild Hunt
 * Night In The Woods
+* Celeste
+* INSIDE
 
 ## Finished
+
+* Gris - fantastic and pretty
+* Limbo - fun puzzles
 
 ## Won't Finish
 
